@@ -1,0 +1,2 @@
+# premium-warded-lock-001-warded-lock-making-key-bit-c
+Tired of losing your key bit sketches and forgetting which ward configuration you used for that perfect lock? Your craft studio deserves a structured home.  This Notion template transforms your lock-making chaos into a streamlined creative workflow. Track every warded lock project, manage key bit designs, and log materials—all in one place. No more
